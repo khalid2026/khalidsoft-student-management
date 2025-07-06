@@ -1,1 +1,0 @@
-# khalidsoft-student-management
